@@ -1,4 +1,4 @@
-Estoy aprendeindo a programar desde cero, me gustaria algun dia trabajar en Microsoft, actualmente me enecuentro en el programa Launch X LATAM por parte de Microsoft en colaboracion con @InnovaccionVirtual.
+Estoy aprendeindo a programar desde cero, me gustaria algun dia trabajar en Microsoft, actualmente me enecuentro en el programa Launch X LATAM por parte de Microsoft en colaboracion con @InnovaccionVirtual. De la mano del gran @BrujeriaTech, un exelente mentor.
 
 
 -👋 Hola, Soy @DeusGarrix4k
